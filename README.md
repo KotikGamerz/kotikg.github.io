@@ -1,1 +1,1 @@
-# kotikg.github.io
+# kotikg.info
